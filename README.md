@@ -1,0 +1,1 @@
+This recipe is my mom's recipe to make a delicious vanilla ice cream.
